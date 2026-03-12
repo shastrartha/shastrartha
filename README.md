@@ -1,2 +1,2 @@
 # shastrartha
-Mission, Vision &amp; Values
+Philosophy, Mission, Vision &amp; Values
